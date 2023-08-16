@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @m-kheed
+- 👀 i deploy bots
+- 🌱 I’m currently in coast  ... reach me on all platforms as mkheed
+- 💞️ also contact on me on any software issues
+- 📫 call 0791471729 for bs reasons
+- hehe i dont force conversations
